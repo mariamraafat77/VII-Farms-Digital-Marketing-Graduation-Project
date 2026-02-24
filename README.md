@@ -35,3 +35,6 @@ VII Farms is a leading food processing company specializing in high-quality froz
 The project covers the production and supply of high-quality frozen food products for the local Egyptian market, with a primary focus on the HoReCa sector. It includes sourcing raw materials, processing, packaging, cold storage, and distribution to restaurants, hotels, and catering businesses. The scope also involves quality control procedures, compliance with food safety standards, and efficient supply chain management. Marketing and B2B client support are included to ensure consistent demand and long-term partnerships. The project aims to deliver reliable frozen food solutions tailored to professional food service operations.
 
 ---
+🗓️ Project Plan — 5 Weeks
+
+---
