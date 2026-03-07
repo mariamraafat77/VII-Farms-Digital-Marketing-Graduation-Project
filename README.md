@@ -38,3 +38,78 @@ The project covers the production and supply of high-quality frozen food product
 🗓️ Project Plan — 5 Weeks
 
 ---
+# Week 1 — Research & Strategy
+
+---
+
+## Competitor Analysis
+Analyzing key competitors in the frozen food and HoReCa supply market to understand their strengths, pricing strategies, product quality, and distribution methods.
+
+---
+
+## Audience Analysis
+Identifying the primary target audience within the HoReCa sector, including restaurants, hotels, and catering businesses, and understanding their purchasing behavior and operational needs.
+
+---
+
+## SWOT Analysis
+Evaluating the internal strengths and weaknesses of VII Farms, along with external opportunities and threats in the frozen food market.
+
+---
+
+## Core USP (Unique Selling Proposition)
+VII Farms focuses on delivering consistently high-quality frozen food products that meet professional kitchen standards, ensuring reliability, freshness, and trust for HoReCa clients.
+
+---
+# Week 2 — Content Planning & Brand Direction
+
+---
+
+## Content Pillars
+- Product quality  
+- HoReCa supply solutions  
+- Industry knowledge  
+- Brand trust  
+
+---
+
+## Content Calendar
+- Weekly posting plan  
+- Mix of product and educational content  
+- Consistent posting schedule  
+
+---
+
+## Brand Identity
+- Tone of Voice (professional and clear)  
+- Visual Direction (clean and premium style)  
+- Focus on quality and reliability  
+
+---
+# Week 3 — Content Production
+
+---
+
+## Content Creation
+- Product photos  
+- HoReCa content  
+
+---
+
+## Design Production
+- Social media designs  
+- Product visuals  
+
+---
+
+## Copywriting
+- Captions  
+- Product descriptions  
+
+---
+
+## Content Review
+- Quality check  
+- Brand consistency  
+
+---
