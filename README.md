@@ -1,4 +1,4 @@
-# VII-Farms-Digital-Marketing-Graduation-Project
+# Global Import Gate -Digital-Marketing-Graduation-Project
 
 ## 👥 Group Members
 - Mariam Raafat
